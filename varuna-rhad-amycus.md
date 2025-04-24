@@ -11,6 +11,7 @@
 > - mars scorpio 12th house opposed saturn taurus 6th house, trine varda 8th house cancer and square neptune aquarius 3rd house
 > - a grand trine of venus 7th gemini, haumea libra 11th and neptune 3rd aquarius. 
 > - venus 7th gemini opposed chiron 1st sagittarius; chiron is also conjunct ixion
+
 Here's a breakdown of the thinking process to construct the Rhadamantus archetype, incorporating mythological, astrological, and discovery chart elements within an evolutionary astrology framework:
 
 1.  **Deconstruct the Request:**
